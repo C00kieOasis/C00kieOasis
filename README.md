@@ -1,4 +1,5 @@
-![hx187wycnxn91](https://github.com/user-attachments/assets/87cb3083-3e0b-4d52-9dbb-acd017c4d6d2)
+<img width="1200" height="628" alt="image" src="https://github.com/user-attachments/assets/a43aacb6-c050-4fff-89e2-54bdeb087edf" />
+
 
                                                      ʀᴏʙʟᴏx: ɪᴄᴇᴄʀᴇᴀᴍᴏʀᴇᴏ87
                                                      ᴅɪꜱᴄᴏʀᴅ: 𝓒⛧⛤𝓴𝓲𝓮 (ᴄ00ᴋɪᴇ1744)
