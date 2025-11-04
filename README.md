@@ -7,3 +7,5 @@
                                                           Limbus NO: B446825633
                                                         Umamusume ID:813326894083
                                                 ꧁⎝           𓆩 ༺✧༻𓆪            ⎠꧂
+
+                                                   I know what you did... @orangejuyce
