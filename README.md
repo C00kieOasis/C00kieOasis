@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=50&pause=1000&color=F7C0A2&center=true&vCenter=true&width=435&lines=On%2FOff+hiatus)](https://git.io/typing-svg)
 
-<img width="1000" height="560" alt="image" src="https://github.com/user-attachments/assets/66c16cff-74d3-4765-b23a-3476a7c7c007" />
+<img width="2048" height="1586" alt="image" src="https://github.com/user-attachments/assets/e941d6d3-7a46-4459-9e1d-40d50bacfa9a" />
 
 
 
